@@ -13,3 +13,8 @@ Ok what is this????  bye😭😭
 <img width="5712" height="4284" alt="IMG_0813" src="https://github.com/user-attachments/assets/be6bd852-085b-4b0c-8494-f70ccaa1adb5" />
 
 Another Dino glitch or smth idk
+
+
+<img width="628" height="310" alt="Screenshot_5-11-2026_16495_pony town" src="https://github.com/user-attachments/assets/bc661386-87bf-4936-b2ad-647a805549c4" />
+
+I'm seeing ts too often bye😭😭😭😭
